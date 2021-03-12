@@ -2,4 +2,4 @@
 
 ## Check out my work!
 
-## Find me on linkedin @ [https://www.linkedin.com/in/remyorans/](remy linkedin)
+## Find me on linkedin @ [Remy Orans](https://www.linkedin.com/in/remyorans/)
